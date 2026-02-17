@@ -24,4 +24,8 @@
 <p align="center"><img width="400" height="49" alt="image" src="https://github.com/user-attachments/assets/d46f244b-7c60-48e3-82f6-b660374a3da0" /><img width="400" height="49" alt="image" src="https://github.com/user-attachments/assets/322cfc52-4e57-4d18-9651-98a89c2c8d4e" />
 
 
+<p align="center">
+𝒪𝓉𝓅 : 𝒮𝑜𝓃𝒶𝒹𝑜𝓌 / 𝒮𝒽𝒶𝒹𝒶𝓂𝓎 / 𝒮𝑜𝓃𝒶𝓂𝓎 .
+𝑅𝒶𝓇𝑒𝓅𝒶𝒾𝓇𝓈 : 𝒮𝒽𝒶𝒹𝓈𝓉𝒾𝒸𝓀𝓈 , 𝐵𝒶𝓏𝒶𝓂𝓎 , 𝒶𝓈𝓀 𝓂𝑒 .
+
 
