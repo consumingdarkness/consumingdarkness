@@ -1,31 +1,14 @@
 <p align="center">
-<img width="400" height="73" alt="image" src="https://github.com/user-attachments/assets/7e92f29c-c362-4c84-8f6e-08aab8e0a896" /><img width="400" height="73" alt="image" src="https://github.com/user-attachments/assets/e8c9a2b3-1e77-46bf-9c20-6c650c0cb278" />
+<img width="1730" height="194" alt="image" src="https://github.com/user-attachments/assets/9f58b80d-46fe-4f80-9d9d-1d401cf1437b" />
+
+
+
+<p align="center">
+<img width="270" height="270" alt="image" src="https://github.com/user-attachments/assets/2a768382-9b97-4df1-bfe7-b83c5d3ecb4e" /> <img width="230" height="230" alt="image" src="https://github.com/user-attachments/assets/31d121e2-dd2b-4354-b7fd-188d11b0219d" />
 
 
 
 
 <p align="center">
-<img width="542" height="92" alt="image" src="https://github.com/user-attachments/assets/82e8818e-b56b-4b92-a785-12add0ad1b6c" />
-
-
-
-
-
-
-<p align="center">
-<img width="542" height="301" alt="image" src="https://github.com/user-attachments/assets/fddbe818-095a-4982-b4b6-5acc062ad9ec" />
-
-<p align="center">
-<img width="400" height="81" alt="image" src="https://github.com/user-attachments/assets/39d382fa-0a5c-45c8-80bd-b0d41f784a45" />
-
-
-<p align="center"> <img width="166" height="169" alt="image" src="https://github.com/user-attachments/assets/c8278ce4-555b-4996-bf39-0ed59ac6d8e7" /> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="198" height="169" alt="image" src="https://github.com/user-attachments/assets/c02d2154-84ef-449a-90ba-852e9fd172c2" /> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="176" height="169" alt="image" src="https://github.com/user-attachments/assets/c711fbc4-d773-4002-93a2-5efd469b3237" />
-
-<p align="center"><img width="400" height="49" alt="image" src="https://github.com/user-attachments/assets/d46f244b-7c60-48e3-82f6-b660374a3da0" /><img width="400" height="49" alt="image" src="https://github.com/user-attachments/assets/322cfc52-4e57-4d18-9651-98a89c2c8d4e" />
-
-
-<p align="center">
-𝒪𝓉𝓅 : 𝒮𝑜𝓃𝒶𝒹𝑜𝓌 / 𝒮𝒽𝒶𝒹𝒶𝓂𝓎 / 𝒮𝑜𝓃𝒶𝓂𝓎 .
-𝑅𝒶𝓇𝑒𝓅𝒶𝒾𝓇𝓈 : 𝒮𝒽𝒶𝒹𝓈𝓉𝒾𝒸𝓀𝓈 , 𝐵𝒶𝓏𝒶𝓂𝓎 , 𝒶𝓈𝓀 𝓂𝑒 .
-
+<img width="1730" height="194" alt="image" src="https://github.com/user-attachments/assets/ade7a145-c427-4138-87d4-c3877b8e3a04" />
 
