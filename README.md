@@ -4,6 +4,10 @@
 
 
 <p align="left"><img width="470" height="470" alt="image" src="https://github.com/user-attachments/assets/c6661c1d-542f-4d7e-a44c-e4554a1c204a" />  
+
+ <p align= "right"> <a href="https://pronouns.cc/@consumingdarkness" target="_blank" rel="noopener">𝙿𝚛𝚗𝚜𝙲𝙲</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ <a href="https://coquettevegeta.atabook.org/" target="_blank" rel="noopener">𝙰𝚃𝙰</a>‎ ‎
+ ‎ ‎ ‎ ‎ ‎ 
+
   
 <p align="center"><img width="450" height="550" alt="image" src="https://github.com/user-attachments/assets/db17a91d-a09a-4776-a828-2a860b5b0b09" />
 
