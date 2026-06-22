@@ -1,23 +1,13 @@
-<p align="center">
-<img width="1730" height="194" alt="image" src="https://github.com/user-attachments/assets/9f58b80d-46fe-4f80-9d9d-1d401cf1437b" /> 
+<img width="1100" height="90" alt="image" src="https://github.com/user-attachments/assets/0be2e789-3edc-4421-9d7c-82d1c0d21a57" />
 
+‎ 
 
+<p align="center"> <img width="690" height="430" alt="image" src="https://github.com/user-attachments/assets/33b7bd8a-c72b-45a9-89e7-ed7dc9606d77" />
 
-<p align="left"><img width="470" height="470" alt="image" src="https://github.com/user-attachments/assets/c6661c1d-542f-4d7e-a44c-e4554a1c204a" />  
-
- <p align= "right"> <a href="https://pronouns.cc/@consumingdarkness" target="_blank" rel="noopener">𝙿𝚛𝚗𝚜𝙲𝙲</a> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ <a href="https://coquettevegeta.atabook.org/" target="_blank" rel="noopener">𝙰𝚃𝙰</a>‎ ‎
- ‎ ‎ ‎ ‎ ‎ 
-
+ <p align="center"> 
+<img width="75" height="18" alt="image" src="https://github.com/user-attachments/assets/911c5741-e64f-48ea-b4a8-18c925589db5" />
+<img width="75" height="18" alt="image" src="https://github.com/user-attachments/assets/f7cd9580-28f1-4b37-bcab-e5f82140695d" />
+‎ ‎ ‎ 
   
-<p align="center"><img width="450" height="550" alt="image" src="https://github.com/user-attachments/assets/db17a91d-a09a-4776-a828-2a860b5b0b09" />
-
-
-<p align="right">
-<img width="230" height="230" alt="image" src="https://github.com/user-attachments/assets/31d121e2-dd2b-4354-b7fd-188d11b0219d" />  
-  
-  <p align="left">
-<img width="270" height="270" alt="image" src="https://github.com/user-attachments/assets/2a768382-9b97-4df1-bfe7-b83c5d3ecb4e" /> 
-
-<p align="center">
-<img width="1730" height="194" alt="image" src="https://github.com/user-attachments/assets/ade7a145-c427-4138-87d4-c3877b8e3a04" />
+<img width="1000" height="30" alt="image" src="https://github.com/user-attachments/assets/be5387c2-ea23-4558-be90-0277fae793d3" />
 
